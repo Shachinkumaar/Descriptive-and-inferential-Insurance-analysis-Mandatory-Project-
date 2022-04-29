@@ -1,1 +1,1 @@
-# Descriptive-and-inferential-statistics-analysis-Mandatory-Project-
+# Descriptive-and-inferential-Insurance-analysis-Mandatory-Project-
